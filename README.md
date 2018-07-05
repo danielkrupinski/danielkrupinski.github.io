@@ -1,0 +1,1 @@
+# danielkrupinski.github.io
